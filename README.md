@@ -1,1 +1,2 @@
 Nicholas Brooks
+brooksni@oregonstate.edu
